@@ -1,1 +1,1 @@
-[GitHub Profile](https://hitgub.com/olilane)
+[GitHub Profile](https://github.com/olilane)
